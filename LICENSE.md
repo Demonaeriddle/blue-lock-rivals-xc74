@@ -1,4 +1,4 @@
-#  
+#  Experience blue lock rivals like never before with blue lock rivals rare Script, the #1 Script. Includes infinite resources and instant win for
 
 
 
